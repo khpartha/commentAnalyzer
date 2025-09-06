@@ -18,4 +18,4 @@ CommentAnlyze respects and protects your privacy.
   This app is not directed at children under 13.  
 
 If you have questions, please contact us at:  
-📧 [your-support-email@example.com]
+📧 4khundrakpampartha@gmail.com
